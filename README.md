@@ -1,10 +1,15 @@
 # Free League Accounts (Region: West)
 
 moneyjjki2jnh4y9n:zouloulou52
+
 money93dbx4a8q1et:aitzolgy11
+
 money30lc2oa87us6:narusamu98
+
 son30ghqk938dhr:adriaxd04
+
 colorzndrs81bk708:Rmp2901
+
 spiderquatra1212:SpiderQuatra1212
 rankf7vk65zcbnba:WedtyEKO68
 money1ltm8dsi4bst:Kevington1777
