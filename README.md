@@ -1,5 +1,7 @@
 # Free League Accounts (Region: West)
 
+30% of this account has already changed password so try everything 
+
 moneyjjki2jnh4y9n:zouloulou52
 
 money93dbx4a8q1et:aitzolgy11
